@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Olegdater
+- 👨‍💻 I'm CEO of [Dater.com]([url](https://dater.com/)), buildin it with [my team]([url](https://open.dater.com/ru-team))
+- 👀 I’m interested in startups and coding.
+- 🌱 I’m currently learning true leadership.
+- 📫 How to reach me: @Olegdater on all social networks or email me at oleg@dater.com
