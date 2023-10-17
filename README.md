@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Olegdater
-- 👨‍💻 I'm CEO of [Dater.com](https://dater.com/), buildin it with [my team](https://open.dater.com/ru-team)
+- 👨‍💻 I'm CEO of [Humanornot.so](https://Humanornot.so/), buildin it with [Katami](https://open.dater.com/ru-team](https://www.instagram.com/katamidater/]
 - 👀 I’m interested in startups and coding.
 - 🌱 I’m currently learning true leadership as written in book [Unusually excellent leaders](https://www.amazon.com/Unusually-Excellent-Necessary-Required-Leadership-ebook/dp/B004IK9XMY/ref=sr_1_1?crid=160RF0PJL3OIK&keywords=unusually+excellent&qid=1672048790&sprefix=unusually+excell%2Caps%2C251&sr=8-1)
-- 📫 You can reach me at @Olegdater on all social networks or email me at oleg@dater.com
+- 📫 You can reach me at @Olegdater on all social networks or email me at olegwn@gmail.com
