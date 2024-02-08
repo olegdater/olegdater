@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Oleghuman
 - 👨‍💻 I'm CEO of [Humanornot.so](https://Humanornot.so/), buildin it with my wife [Katami](https://www.behance.net/katami)
 - 👀 I’m interested in startups, coding and marketing
-- 📫 You can reach me at @Oleghuman on all social networks [linkedin](https://www.linkedin.com/in/oleghuman/) [twitter](https://twitter.com/oleghuman) or email me at oleg@humanornot.so
+- 📫 You can reach me at oleg@humanornot.so or [Linked-In](https://www.linkedin.com/in/oleghuman/) or [Twitter](https://twitter.com/oleghuman)
