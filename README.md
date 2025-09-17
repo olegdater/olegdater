@@ -1,4 +1,4 @@
 - 👋 Hi,
 - 👨‍💻 I'm CEO of [Humanornot.so](https://Humanornot.so/), building it with our HQ team.
 - 👀 I’m interested in AI, crypto, startups, coding and marketing
-- 📫 You can reach me at humans@humanornot.so
+- 📫 You can reach me at humans at human or not dot so
